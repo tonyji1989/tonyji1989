@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Tony Ji
+- 👀 I’m interested in Art & Design
+- 🌱 I’m an architect and I am currently learning UX
